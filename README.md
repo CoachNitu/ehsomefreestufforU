@@ -3,7 +3,7 @@ Welcome to ehsomefreestufforU! Here we notify people about the latest news, free
 
 
 
-<img src="https://tenor.com/view/borgir-gif-22149357" alt="funny GIF" width="100%">
+<img src="https://c.tenor.com/8Mxm1iHLB44AAAAS/borgir.gif" alt="funny GIF" width="100%">
 
 Did you hear about the blind carpenter?
 
