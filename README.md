@@ -7,7 +7,7 @@ Welcome to ehsomefreestufforU! Here we notify people about the latest news, free
 
 
 
-1) https://www.epicgames.com/store/en-US/p/a-plague-tale-innocence 
+1) (https://www.epicgames.com/store/en-US/p/a-plague-tale-innocence) 
 Free to claim on epicgames.com
 
 2) https://www.epicgames.com/store/en-US/p/minit
