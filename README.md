@@ -3,7 +3,7 @@ Welcome to ehsomefreestufforU! Here we notify people about the latest news, free
 
 
 
-![Image](https://tenor.com/view/borgir-gif-22149357)
+![Image](https://cdn.discordapp.com/attachments/873958810157473822/873967386934521896/unknown.png)
 
 
 
