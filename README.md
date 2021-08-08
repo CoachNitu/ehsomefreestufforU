@@ -3,14 +3,14 @@ Welcome to ehsomefreestufforU! Here we notify people about the latest news, free
 
 
 
-
+![Image](https://tenor.com/view/borgir-gif-22149357)
 
 
 
 1)[Link](https://www.epicgames.com/store/en-US/p/a-plague-tale-innocence)
 Free to claim on epicgames.com
 
-2) https://www.epicgames.com/store/en-US/p/minit
+(https://www.epicgames.com/store/en-US/p/minit)
 Free to claim on epicgames.com too!
 
 3) https://www.gog.com/promo/rerelease_ultima_underworld_and_syndicate
