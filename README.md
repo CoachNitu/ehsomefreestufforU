@@ -7,7 +7,7 @@ Free Stuff this week (Last Updated 8/13/21 or 13/8/21 for amerikans)
 
 
 
-<p href="https://www.epicgames.com/store/en-US/p/rebel-galaxy"> Rebel Galaxy</p>
+<a href="https://www.epicgames.com/store/en-US/p/rebel-galaxy"> Rebel Galaxy</p>
 
 
 
