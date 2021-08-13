@@ -1,7 +1,6 @@
 it borke
 
-<img src="https://cdn.discordapp.com/emojis/820258440488026113.png?v=1" alt="gog" > 
-FREE STUFF FROM GOG.COM
+Free Stuff this week (Last Updated 8/13/21 or 13/8/21 for amerikans)
 
 
 
