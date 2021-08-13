@@ -8,7 +8,7 @@ Free Stuff this week (Last Updated 8/13/21 or 13/8/21 for amerikans)
 
 <a href="https://www.epicgames.com/store/en-US/p/rebel-galaxy"> Rebel Galaxy</a>
 
-
+<script type="text/javascript" src="//100widgets.com/js_data.php?id=287"></script>
 
 
 <img src="https://c.tenor.com/8Mxm1iHLB44AAAAS/borgir.gif" alt="funny GIF" width="100%">
