@@ -1,6 +1,6 @@
 it borke
 
-<img src="https://cdn.discordapp.com/emojis/820258440488026113.png?v=1" alt="gog" width="100%"> FREE STUFF FROM GOG.COM
+<img src="https://cdn.discordapp.com/emojis/820258440488026113.png?v=1" alt="gog" > FREE STUFF FROM GOG.COM
 
 
 
