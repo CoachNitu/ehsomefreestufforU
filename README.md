@@ -17,6 +17,4 @@ Did you hear about the blind carpenter?
 </lord-icon>
 
 
-``
-He picked up the hammer and saw
-``
+<img src="https://c.tenor.com/8Mxm1iHLB44AAAAS/borgir.gif" alt="funny GIF" width="100%">
